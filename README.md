@@ -1,2 +1,3 @@
-PacificBudBoys is a mail-order marijuana dispensary with a platform for weed growers selling medicinal-grade, recreational, and organic cannabis products.
-https://pacificbudboys.com
+Lil Durk is an exclusive retailer and wholesaler for recreational cannabis and a trusted source for information about cannabis and cannabis-related issues.
+
+https://lildurk.com
